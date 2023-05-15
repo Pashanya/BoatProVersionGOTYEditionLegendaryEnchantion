@@ -1,3 +1,3 @@
 # BoatProVersionGOTYEditionLegendaryEnchantion
-Эта штука, чтобы 
+Эта штука, чтобы \n
 Пожалуйста, не воруйте, потому что я очень огорчусь
